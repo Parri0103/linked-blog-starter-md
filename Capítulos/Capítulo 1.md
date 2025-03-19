@@ -1,0 +1,5 @@
+Eiko llega a [[Astel]] y se encuentra con [[El Capitán]] siendo apaleado por [[Cuervos de Hierro]] y ella los salva, Reina ve la situación y le pide formar un equipo, pero tienen que salir corriendo por que los cuervos de hierro los persiguen, en la persecución los encuentra Lerrum, el cual tenia un viaje planeado hacia Eirel junto a El Capitán, por lo que se une a ellos y se pone a correr. Corren hasta llegar a un banco donde esta Lon Ginus sentado el cual por el fastidio de los cuervos de hierro decide ayudarlos.
+
+Pelean y el capitán les dice que si logran recuperar su barco el los iba a llevar a Eirel y que Eiral, La Primera Ciudad de Eirel estaba siendo amenazada por los cuervos de hierro, luego de una combate en el puerto se enfrentan a un General de los cuervos de hierro, al cual sorpresivamente derrotan...
+
+Luego [[Roderick]] les pide echar al resto de cuervos y así lo hacen

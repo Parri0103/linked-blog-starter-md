@@ -1,0 +1,2 @@
+Un aspirante a Dios el cual formo un grupo para rescatar a su hermana de los [[Cuervos de Hierro]]. El le mintió a sus seguidores diciéndoles que era un ser con mas de 1000 años y por alguna razón le creyeron y decidieron seguirlo.
+Spoiler, nadie le creyó, pero se le hizo tierno que esa fuese la mentira que se le ocurrió para conseguir gente para rescatar a su hermana

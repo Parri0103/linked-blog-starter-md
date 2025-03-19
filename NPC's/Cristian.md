@@ -1,0 +1,1 @@
+Dios al que seguía Lon Ginus y enemigo de [[Cesh Ar]]

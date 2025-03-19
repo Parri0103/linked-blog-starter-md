@@ -1,0 +1,1 @@
+El líder que es la cabeza de los 3 goblins en una gabardina, se disfraza junto a sus hermanos Gabu y Gibu.
