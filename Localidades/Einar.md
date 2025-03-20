@@ -1,1 +1,1 @@
-La primera ciudad de Eirel
+La primera ciudad de Eirel que esta bajo asedio de los [[Cuervos de Hierro]]
