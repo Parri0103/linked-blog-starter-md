@@ -1,1 +1,5 @@
-Dios al que seguía Lon Ginus y enemigo de [[Cesh Ar]]
+Dios al que seguía Lon Ginus y enemigo de [[Cesh Ar]].
+
+### ¿Por qué se dejo matar por Lon Ginus?
+Cristian decidió tomar una apuesta, el sabía que la única forma de verdaderamente desestabilizar a Cesh Ar era arrebatarle a su soldado mas confiable y Cristan sabía que era posible, el pudo ver a través de Lon Ginus, el sabía que Lon Ginus confiaba en el y lo admiraba, incluso si el resto de sus seguidores no la hacian. Entonces el decidio hacer una ultima apuesta, si esta salía bien el iba a poder tomar el control del País y salvarlo de su tirano, pero perdío su apuesta, Cristian no tomo en cuenta lo mucho que confiaba Lon Ginus en el, que incluso despues de apuñalarlo pense que de alguna manera el se podia escapar. 
+Cristian decidio confiar en Lon Ginus, pero este no logro entender sus intenciones.

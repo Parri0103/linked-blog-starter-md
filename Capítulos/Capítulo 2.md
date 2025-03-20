@@ -4,3 +4,4 @@ Al llegar a la costa de Einar los detienen para una inspección, ya que están e
 ### Cosas que hacer en la parte 2
 - Hacer foreshadowing con El Capitán
 - Informar del infiltrado en la guardia
+- Hacer algo con Lerrum, darle info sobre los hilos mediante algún erudito

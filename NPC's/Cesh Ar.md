@@ -1,1 +1,1 @@
-Rey del reino de Lon Ginus y a quien servía anteriormente
+Tirano del reino de Lon Ginus y a quien servía anteriormente
