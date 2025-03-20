@@ -1,0 +1,1 @@
+Capital de Eirel que esta rodeada de poder divino haciendo imposible la entrada a aquellos que no poseen la suficiente divinidad
