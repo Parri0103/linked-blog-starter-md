@@ -1,1 +1,1 @@
-Uno de los generales de la guardia de [[Einar]]
+Uno de los generales de la [[Guardia de Einar]]
