@@ -1,0 +1,1 @@
+Uno de los generales de la [[Guardia de Einar]] y el que esta desaparecido
