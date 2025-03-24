@@ -14,14 +14,14 @@ Apenas pongan un pie en Einar El Capitán se va a despedir de ellos, se va a for
 Los jugadores van a intentar hablar con [[Eikan]], el jefe de la [[Guardia de Einar]], el cual los va a aceptar por una carta que le llego de Roderick. Este les va a comentar la situacion en la que se encuentra Eiran y que piensa que hay un infiltrado en sus fuerzas y si logran descubrir quien es es posible que puedan repeler sus fuerzas.
 Eikan les dice quienes son sus 5 generales y les dice que [[Garret]] esta Desaparecido. También les da un emblema a cada uno con un certificado de que son aliados de la guardia.
 
-El objetivo para la parte 2 va a ser encontrar a Garret, y van a tener un reloj para hacerlo.
+El objetivo para la parte 2 va a ser encontrar a Garret.
 
 ***PISTAS:***
-- En el despacho de Garret van a encontrar informes de como hay movimientos sospechosos en el este de la ciudad y sospechas sobre Alaric
-- En el despacho de Alaric hay un mapa con localidades marcadas, 4 con cruces y 3 con circulos (si se demoran se encuentran con Alaric)
-- En el despacho de Kalra encuentran un monton de libros y algo de informacion sobre los hilos, pero nada sobre los cuervos
+- En el despacho de Garret van a encontrar una bitacora diciendo que hay movimientos sospechosos en el este de la ciudad en los barrios bajos y sospechas sobre Alaric
+- En el despacho de Alaric hay un mapa con localidades marcadas, 4 con cruces y 3 con circulos (si se demoran se encuentran con Alaric). Los 3 cirulos marcan un almacen, un templo abandonado y una taverna, en todos estos lugares se detecto la precencia de los cuervos de hierro
+- En el despacho de Kalra encuentran un monton de libros y algo de informacion sobre los hilos, pero nada sobre los cuervos, pero tambien esta ella hablando con un subordinado  "esta todo listo señora" "entendido, diganle que ire pronto" "si señora"
 - En el despacho de Dana encuentran su diario. En este de que hace un par de días invito a comer a Alaric y para su sorpresa ella acepto y habla de como parece mala pero en realidad es bastante buena persona aunque siempre este ocupada. Si leen el diario de Dana ella los va a ver en su despacho
 - En el despacho de Eiron encuentran varios informes sobre la situacion con el puerto y los cuervos y una carta de Dana diciendo que tenga cuidado y que Kalra no se ve mucho en sus despacho ultimamente.
-	- **Carta:** Como esta todo por allá? escuche que el puerto esta muy complicado, pero tomate un tiempo para descansar de vez en cuando, ultimamente el cuartel es demasiado aburrido, tanto Kalra como Alaric estan todo el tiempo fuera y a mi me toca hacer todo el papeleo... (y sigue quejandose)
-- En el cuartel pero fuera de su despacho se encuentran con Kalra la cual esta hablando con uno de sus subordinados, "esta todo listo señora" "entendido, diganle que ire pronto" "si señora"
-	
+	- **Carta:** Como esta todo por allá? escuche que el puerto esta muy complicado, pero tomate un tiempo para descansar de vez en cuando, ultimamente el cuartel es demasiado aburrido, Kalra esta todo el tiempo yendo a un templo de no se que para su investigacion y Alaric esta todo el tiempo fuera por que esta ocupada y a mi me toca hacer todo el papeleo... (y sigue quejándose)
+
+
