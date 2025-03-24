@@ -1,5 +1,5 @@
-El Grupo se dirige en el Barco de [[El Capitán]] hacia [[Einar]], la primera ciudad de Eirel, en el Camino se encuentran con 1 barco siendo atacado por [[Cuervos de Hierro]] y deciden ayudarlo, durante el combate Reina aborda uno de los barcos enemigos y detona la pólvora en el mismo, luego ayudan en el contra abordaje del barco aliado y en esa pelea aparece [[Gobu]] el cual se estaba escondiendo en los suministros de su barco y se encuentran con [[Wyll]] el Aspirante a Dios líder del barco aliado con el cual se alían hasta llegar a Einar
-Al llegar a la costa de Einar los detienen para una inspección, ya que están en estado de alerta por las amenazas de los cuervos de hierro y conocen a [[Eiron]] unos de los generales de la guardia de Einar, el cual les da la bienvenida a la ciudad.
+El Grupo se dirige en el Barco de El Capitán hacia Einar, la primera ciudad de Eirel, en el Camino se encuentran con 1 barco siendo atacado por Cuervos de Hierro y deciden ayudarlo, durante el combate Reina aborda uno de los barcos enemigos y detona la pólvora en el mismo, luego ayudan en el contra abordaje del barco aliado y en esa pelea aparece Gobu el cual se estaba escondiendo en los suministros de su barco y se encuentran con Wyll el Aspirante a Dios líder del barco aliado con el cual se alían hasta llegar a Einar
+Al llegar a la costa de Einar los detienen para una inspección, ya que están en estado de alerta por las amenazas de los cuervos de hierro y conocen a Eiron unos de los generales de la guardia de Einar, el cual les da la bienvenida a la ciudad.
 
 ### Cosas que hacer en la parte 2
 - Hacer foreshadowing con El Capitán
@@ -11,8 +11,8 @@ La partida empieza con una escena del villano:
 Estamos en una habitacion en la que no podemos ver la cara de la persona hablando, "¿Pudieron capturarlo?" "asi es, todo deberia ir de acuerdo al plan" "entiendo, pero no se confien escuche que un grupo problematico llego a la ciudad asi que mantanganles un ojo encima y no los dejen acercarse, ¿Entendido?" "Si señora"
 
 Apenas pongan un pie en Einar El Capitán se va a despedir de ellos, se va a formar un hilo y van a ver que el esta escondiendo sus hilos y les va a explicar como mandar señales / mensajes a través de los hilos (las personas que son capaces de convertirse en Dioses pueden distorcionar el destino en mayor o menor medida (puntos de fabula)). Justo antes de irse le va a desear suerte a Dandelion.
-Los jugadores van a intentar hablar con [[Eikan]], el jefe de la [[Guardia de Einar]], el cual los va a aceptar por una carta que le llego de Roderick. Este les va a comentar la situacion en la que se encuentra Eiran y que piensa que hay un infiltrado en sus fuerzas y si logran descubrir quien es es posible que puedan repeler sus fuerzas.
-Eikan les dice quienes son sus 5 generales y les dice que [[Garret]] esta Desaparecido. También les da un emblema a cada uno con un certificado de que son aliados de la guardia.
+Los jugadores van a intentar hablar con Eikan, el jefe de la Guardia de Einar, el cual los va a aceptar por una carta que le llego de Roderick. Este les va a comentar la situacion en la que se encuentra Eiran y que piensa que hay un infiltrado en sus fuerzas y si logran descubrir quien es es posible que puedan repeler sus fuerzas.
+Eikan les dice quienes son sus 5 generales y les dice que Garret esta Desaparecido. También les da un emblema a cada uno con un certificado de que son aliados de la guardia.
 
 El objetivo para la parte 2 va a ser encontrar a Garret.
 
