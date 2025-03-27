@@ -1,5 +1,8 @@
 La tienda de objetos magicos es llevado por un mago muy poderoso llamado Zalith el cual tiene varias marionetas esparcidas por todas sus tiendas en varias localidades de Eirel
 
+### Ubicaciones 
+- [[Einar]]
+
 # Objetos
 ## Armas
 
