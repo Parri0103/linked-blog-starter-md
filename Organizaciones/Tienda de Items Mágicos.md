@@ -360,7 +360,7 @@ La tienda de objetos magicos es llevado por un mago muy poderoso llamado Zalith 
 23. You have Resistance to poison damage.
 24. Pendant, Opal 700 z
 25. You have Resistance to air damage.
-26. Pendant, Ruby 700 z
+26. Pendant, Ruby 700 z   (Reservado 300z)
 27. You have Resistance to fire damage.
 28. Pendant, Sapphire 700 z
 29. You have Resistance to ice damage.
