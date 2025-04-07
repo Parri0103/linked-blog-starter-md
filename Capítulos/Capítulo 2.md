@@ -24,8 +24,17 @@ El objetivo para la parte 2 va a ser encontrar a Garret.
 - En el despacho de Eiron encuentran varios informes sobre la situacion con el puerto y los cuervos y una carta de Dana diciendo que tenga cuidado y que Kalra no se ve mucho en sus despacho ultimamente.
 	- **Carta:** Como esta todo por allá? escuche que el puerto esta muy complicado, pero tomate un tiempo para descansar de vez en cuando, ultimamente el cuartel es demasiado aburrido, Kalra esta todo el tiempo yendo a un templo de no se que para su investigacion y Alaric esta todo el tiempo fuera por que esta ocupada y a mi me toca hacer todo el papeleo... (y sigue quejándose)
 
+---
 
 Una vez rescaten a Garret (si es que lo hacen) este va a seguir pensando que es culpa de Alaric y va a ir a confrontarla y va a obligar a Eikan a que llame una reunion de emergencia para hecharle la culpa a Alaric, pero Dana va a saltar en su defensa y despues de un tiempo van a escuchar una explosion en la ciudad y van a ver humo y fuego en varias zonas de las ciudad.
 Si van a la ciudad van a ver a los guardias peleando y a varios cuervos de hierro e incluso al grupo de Wyll, al cual le pueden pedir ayuda.
 
-El fuego viene tanto del este como del oeste y se esta esparciendo para el norte y el sur. Cada uno de los generales van para sus respectivas partes de la ciudad, el capitan va con Alaric para ayudar y manda a los jugadores y a Eiron al oeste junto a Kalra.
+El fuego viene tanto del este como del oeste y se esta esparciendo para el norte y el sur. Cada uno de los generales van para sus respectivas partes de la ciudad, el capitan va con Alaric para ayudar y manda a los jugadores al oeste junto a Kalra.
+
+En el camino pueden intentar cuestionar a Kalra, pero si la cuestionan mucho van a ser atacados antes de tiempo. En el oeste hay un fuego principal, que es a donde se van a dirigir, en el camino se encuentran al grupo de Wyll que puede seguirlos a ellos o ayudar a los incendios menores del alrededor, si Wyll va con los jugadores el combate va a ser mas sencillo.
+
+El incencdio principal esta ocurriendo en una biblioteca gigante y Kalra al ver esto sale corriendo a buscar los libros para que no se quemen, si los jugadores la siguen van a caer en su trampa y va a dar paso el combate con ella.
+
+Si los jugadores descubren a Kalra antes de el ataque, esta es encerrada pero luego liberada durante el ataque y cuando llegan al oeste les dicen que los que empezaron el fuego es como si hubiesen resivido un mensaje y salieron corriendo.
+
+Si corren de regreso pueden llegar a alcanzar a Kalra antes de que escape.
