@@ -25,3 +25,7 @@ El objetivo para la parte 2 va a ser encontrar a Garret.
 	- **Carta:** Como esta todo por allá? escuche que el puerto esta muy complicado, pero tomate un tiempo para descansar de vez en cuando, ultimamente el cuartel es demasiado aburrido, Kalra esta todo el tiempo yendo a un templo de no se que para su investigacion y Alaric esta todo el tiempo fuera por que esta ocupada y a mi me toca hacer todo el papeleo... (y sigue quejándose)
 
 
+Una vez rescaten a Garret (si es que lo hacen) este va a seguir pensando que es culpa de Alaric y va a ir a confrontarla y va a obligar a Eikan a que llame una reunion de emergencia para hecharle la culpa a Alaric, pero Dana va a saltar en su defensa y despues de un tiempo van a escuchar una explosion en la ciudad y van a ver humo y fuego en varias zonas de las ciudad.
+Si van a la ciudad van a ver a los guardias peleando y a varios cuervos de hierro e incluso al grupo de Wyll, al cual le pueden pedir ayuda.
+
+El fuego viene tanto del este como del oeste y se esta esparciendo para el norte y el sur. Cada uno de los generales van para sus respectivas partes de la ciudad, el capitan va con Alaric para ayudar y manda a los jugadores y a Eiron al oeste junto a Kalra.
