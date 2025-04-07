@@ -38,3 +38,4 @@ El incencdio principal esta ocurriendo en una biblioteca gigante y Kalra al ver 
 Si los jugadores descubren a Kalra antes de el ataque, esta es encerrada pero luego liberada durante el ataque y cuando llegan al oeste les dicen que los que empezaron el fuego es como si hubiesen resivido un mensaje y salieron corriendo.
 
 Si corren de regreso pueden llegar a alcanzar a Kalra antes de que escape.
+
