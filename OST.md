@@ -10,5 +10,7 @@
 	- https://www.youtube.com/watch?v=EApZmmYg_oQ
 	- https://www.youtube.com/watch?v=7wBzL62Va1k
 	- https://www.youtube.com/watch?v=RPkHu8M_U4c&t=1s
+	- https://www.youtube.com/watch?v=tT35z4DZb3M
+	- https://www.youtube.com/watch?v=WW4bdFhcZgw&t=4s
 - Goofy ahh music
 	- https://www.youtube.com/watch?v=ljTfHitG0eA
