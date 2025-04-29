@@ -1,0 +1,3 @@
+La buscadora del conocimiento, no le importa como ni de quien venga lo único que le interesa es conseguir mas conocimiento y poder sobre los hilos. 
+Esta aliada con los [[Cuervos de Hierro]] por que le prometieron una forma de entrar a [[Ishtal]], la antigua capital de Eirel y donde se encuentra todo sobre los hilos.
+Si falla su misión con los Cuervos piensa aprovecharse de [[Lerrum]] para ayudarla a cruzar por la capital.
