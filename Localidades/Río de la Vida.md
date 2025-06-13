@@ -1,0 +1,3 @@
+El río que delimita la capital del resto del continente. Un río rebosante de todo tipo de vida, con corrientes que pueden arrasar con cualquier barco y una profundidad mas honda que el océano.
+
+Cuando lo jugadores lleguen a este río van a ver a el barco de [[El Capitán]] surcando por las corrientes de agua y estrellándose contra otro barco, solo para que una parte de este segundo se hunda y la otra sea devorada por el barco de [[El Capitán]].

@@ -1,0 +1,3 @@
+El Gran Desierto Mágico no siempre fue un desierto, antes eran las afueras de la capital, pero después del golpe final en la Gran Guerra Divina la primera onda expansiva rompió la lógica y coherencia de sus alrededores, encerrando a la capital en una cúpula de divinidad, pero la segunda onda expansiva fue de destrucción, acabando con toda la vida a su paso, la cual fue frenada en el Río de la vida.
+
+En esta área no solo la vida escasea, si no que también la magia y la divinidad, solo los mas valientes y astutos pueden aprovecharse de esta situación y así y [[Dahlia]], Consiguiendo el titulo de la Diosa del Desierto.
