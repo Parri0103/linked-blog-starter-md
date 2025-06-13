@@ -1,1 +1,0 @@
-Abuelo de Lon Ginus y [[Cassia]]
