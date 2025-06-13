@@ -16,5 +16,5 @@ Cuando hablen con el les va a decir que muchos seguidores de Cristian escaparon 
 
 
 Para este capítulo los jugadores podrán elegir entre 2 ciudades:
-- Gravacorde, una ciudad gobernada por el autoproclamado Dios de la música, el cual encuentra el arte en los gritos y el sufrimiento
-- Letargia, la ciudad de el que es considerado el Dios de la pereza, una persona que sin importar que toma el camino mas corto, sea por el lado de lo correcto o de la corrupción. Una ciudad que funciona con lo mínimo e indispensable y un monumento a la mediocridad.
+- Gravacorde, una ciudad gobernada por el autoproclamado Dios de la música Avenor, el cual encuentra el arte en los gritos y el sufrimiento
+- Letargia, la ciudad de el que es considerado el Dios de la pereza Drovius, una persona que sin importar que toma el camino mas corto, sea por el lado de lo correcto o de la corrupción. Una ciudad que funciona con lo mínimo e indispensable y un monumento a la mediocridad.
