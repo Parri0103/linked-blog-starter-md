@@ -1,2 +1,2 @@
-La primera ciudad de Eirel que esta bajo asedio de los [[Cuervos de Hierro]]
+La primera ciudad de Eirel que estaba bajo asedio de los Cuervos de Hierro
 Einar es considerada la primera ciudad de Eirel porque es la mas cercana al resto de continentes, por esta razon para mantener una justa competencia entre los Dioses, estos hicieron un acuerdo de que ningun Dios puede tomar el control sobre Einar, pero Marcus rompio este tratado intentando tomar la ciudad para evitar la entrada de nuevas variables

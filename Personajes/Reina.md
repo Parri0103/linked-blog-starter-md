@@ -4,7 +4,7 @@
 - Lerrum
 - Lon Ginus
 - Roderick
-
+- Gobu
 
 
 ## Backstoty
