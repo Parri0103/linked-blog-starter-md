@@ -31,3 +31,14 @@ Cuando los jugadores realicen acciones que muevan a las masas ya sea positiva o 
 - 100 *Hilos de masas* equivalen a uno de nivel 3
 Para conseguir el beneficio de los *Hilos de masas* la cantidad requerida de hilos tienen que ser del mismo tipo (Admiración, Lealtad, Odio, etc.)
 Las mejoras de los *Hilos de masas* son sobre alguna de las clases de sus personajes
+
+**Mejoras por haber salvado a Einar:**
+- Eiko: 
+	- Darkblade: Heart of Darkness
+		Cuando estas en crisis genera un hilo de odio con una persona con la que no tengas un hilo
+	- Hilo invertido: 
+		El hilo de odio es de nivel 2
+- Reina: 
+	- Commander: Charging Cavalry
+	- Hilo invertido:
+		Lo calculas el daño con la mitad del HR
