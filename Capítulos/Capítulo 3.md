@@ -42,3 +42,9 @@ Las mejoras de los *Hilos de masas* son sobre alguna de las clases de sus person
 	- Commander: Charging Cavalry
 	- Hilo invertido:
 		Lo calculas el daño con la mitad del HR
+- Lerrum:
+	- Elementalist: Ritual Elementalist
+	- Hilo invertido:
+		- El ritual cuesta la mitad del mana
+- Lon Ginus:
+	- 
