@@ -1,1 +1,1 @@
-Líder de los [[Cuervos de Hierro]] y apunta a quitarle el puesto a [[Kessia]] como Dios del odio y del miedo
+Líder de los [[Cuervos de Hierro]] y apunta a quitarle el puesto a [[Zura]] como Dios del odio y del miedo
