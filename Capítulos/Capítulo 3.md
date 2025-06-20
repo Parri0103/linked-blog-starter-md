@@ -41,10 +41,12 @@ Las mejoras de los *Hilos de masas* son sobre alguna de las clases de sus person
 - Reina: 
 	- Commander: Charging Cavalry
 	- Hilo invertido:
-		Lo calculas el daño con la mitad del HR
+		Lo calculas el daño sumando el HR
 - Lerrum:
 	- Elementalist: Ritual Elementalist
 	- Hilo invertido:
 		- El ritual cuesta la mitad del mana
 - Lon Ginus:
-	- 
+	- Weaponmaster: Melee Weapon Mastery
+	- Hilo invertido:
+		- Cuenta como 2 niveles de Melee Weapon Mastery
