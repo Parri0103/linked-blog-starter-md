@@ -1,0 +1,1 @@
+Tienen su base ubicada en [[Ishtal]]
