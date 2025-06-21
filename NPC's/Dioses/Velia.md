@@ -1,0 +1,1 @@
+Diosa del afecto, una Diosa benevolente y una de las mas fuertes ya que es una diosa relacionada con uno de los sentimientos puros de los hilos

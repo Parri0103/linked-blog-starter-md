@@ -1,0 +1,1 @@
+Diosa del odio, una de las Diosas mas poderosas ya que su poder viene de uno de los hilos mas fáciles de conseguir, el del odio.

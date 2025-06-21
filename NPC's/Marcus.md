@@ -1,1 +1,0 @@
-Líder de los [[Cuervos de Hierro]]

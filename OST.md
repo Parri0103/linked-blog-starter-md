@@ -14,3 +14,7 @@
 	- https://www.youtube.com/watch?v=WW4bdFhcZgw&t=4s
 - Goofy ahh music
 	- https://www.youtube.com/watch?v=ljTfHitG0eA
+- Canciones demasiado buenas como para que no tengan copyright
+	- https://www.youtube.com/watch?v=tU0EjcEyOYo
+	- https://www.youtube.com/watch?v=f64pMGUZtoM
+	- https://www.youtube.com/watch?v=SOFXy4ippuM

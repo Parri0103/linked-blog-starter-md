@@ -1,0 +1,1 @@
+El Dios de la pereza Drovius, una persona que sin importar que toma el camino mas corto, sea por el lado de lo correcto o de la corrupción
