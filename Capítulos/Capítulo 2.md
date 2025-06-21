@@ -33,7 +33,7 @@ El fuego viene tanto del este como del oeste y se esta esparciendo para el norte
 
 En el camino pueden intentar cuestionar a Kalra, pero si la cuestionan mucho van a ser atacados antes de tiempo. En el oeste hay un fuego principal, que es a donde se van a dirigir, en el camino se encuentran al grupo de Wyll que puede seguirlos a ellos o ayudar a los incendios menores del alrededor, si Wyll va con los jugadores el combate va a ser mas sencillo.
 
-El incencdio principal esta ocurriendo en una biblioteca gigante y Kalra al ver esto sale corriendo a buscar los libros para que no se quemen, si los jugadores la siguen van a caer en su trampa y va a dar paso el combate con ella.
+El incendio principal esta ocurriendo en una biblioteca gigante y Kalra al ver esto sale corriendo a buscar los libros para que no se quemen, si los jugadores la siguen van a caer en su trampa y va a dar paso el combate con ella.
 
 Si los jugadores descubren a Kalra antes de el ataque, esta es encerrada pero luego liberada durante el ataque y cuando llegan al oeste les dicen que los que empezaron el fuego es como si hubiesen resivido un mensaje y salieron corriendo.
 
