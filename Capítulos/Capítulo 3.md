@@ -50,3 +50,10 @@ Las mejoras de los *Hilos de masas* son sobre alguna de las clases de sus person
 	- Weaponmaster: Melee Weapon Mastery
 	- Hilo invertido:
 		- Cuenta como 2 niveles de Melee Weapon Mastery
+
+
+#### Camino a Gravacorde
+
+El camino a Gravacorde va a ser bastante tranquilo, a no ser que quieran gastar un punto de fabula para que pase algo interesante.
+A los 2 días de llegar se van a encontrar con una bardesa llamada Bell a la cual le dio curiosidad por conocer al autoproclamado Dios de la música, lamentablemente esta bardesa no sabía que en Avenor esta prohibida la competencia de otros músicos, por lo que poco después de llegar es arrestada.
+
