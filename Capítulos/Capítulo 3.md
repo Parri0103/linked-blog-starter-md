@@ -55,5 +55,10 @@ Las mejoras de los *Hilos de masas* son sobre alguna de las clases de sus person
 #### Camino a Gravacorde
 
 El camino a Gravacorde va a ser bastante tranquilo, a no ser que quieran gastar un punto de fabula para que pase algo interesante.
-A los 2 días de llegar se van a encontrar con una bardesa llamada Bell a la cual le dio curiosidad por conocer al autoproclamado Dios de la música, lamentablemente esta bardesa no sabía que en Avenor esta prohibida la competencia de otros músicos, por lo que poco después de llegar es arrestada.
+A los 2 días de llegar se van a encontrar con una bardesa llamada Bell a la cual le dio curiosidad por conocer al autoproclamado Dios de la música, lamentablemente esta bardesa no sabía que en Gravacorde esta prohibida la competencia de otros músicos, por lo que poco después de llegar es arrestada.
 
+Cuando llegan a gravacorde tienen que hacer una fila en la cual un poco mas adelante que ellos se encuentra Bell, la cual cuando se presenta como una bardesa es inmediatamente arrestada.
+Si empiezan una pelea lo mas probable es que pierdan y los arresten.
+
+En gravacorde si no son arrestados eventualmente se encontraran con Amel un ex seguidor de Cristian el cual va a atacar a Lon Ginus apenas lo vea.
+El grupo revolucionario en contra de Avanor es bastante pequeño y esta conformada por algunos de los antiguos seguidores de Cristian.

@@ -4,6 +4,7 @@
 - Lerrum
 - Reina
 - Roderick
+- Gente de Einar
 
 ## Backstory
 

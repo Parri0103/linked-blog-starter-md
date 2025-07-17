@@ -1,0 +1,1 @@
+Antiguo seguidor de [[Cristian]], un hombre mayor que decidió quedarse en [[Gravacorde]] junto a Valery y abrió una taberna para poder tener un lugar donde quedarse que funcione como guarida en caso de ser necesario

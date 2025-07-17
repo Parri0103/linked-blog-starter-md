@@ -5,6 +5,7 @@
 - Lon Ginus
 - Roderick
 - Gobu
+- Gente de Einar
 
 
 ## Backstoty

@@ -4,6 +4,7 @@
 - Reina
 - Lon Ginus
 - Roderick
+- Gente de Einar
 
 ## Backstory
 

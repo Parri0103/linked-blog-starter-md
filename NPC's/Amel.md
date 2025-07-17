@@ -1,0 +1,1 @@
+Antiguo seguidor de [[Cristian]] el cual decidió quedarse con Valery porque no considera que sea lo suficientemente fuerte como para poder pelear junto al resto.

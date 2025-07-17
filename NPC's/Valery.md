@@ -1,0 +1,1 @@
+Antigua seguidora de [[Cristian]] la cual se quedo en gravacorde para proteger a refugiados de la guerra civil y ella actúa como la líder del grupo. 
