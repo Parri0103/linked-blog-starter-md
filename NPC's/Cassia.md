@@ -1,1 +1,1 @@
-Hermana de Lon Ginus
+Hermana de Lon Ginus y secreta mano derecha de [[Cristian]] la cual escapo a Eirel para hacerse mas fuerte y poder liberar a su país
