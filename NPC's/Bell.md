@@ -1,0 +1,1 @@
+Una bardesa que quiere saber todo sobre la música y ser una con la música y para eso va a convertirse en la diosa de la música 
