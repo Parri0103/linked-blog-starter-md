@@ -26,5 +26,5 @@ Hay 2 forma de convencer a Lilith para que los ayude, la primera es ponerse de a
 Surge la idea de que quizás usando la maquinaria pesada que esta en el entre piso 1.5 puedan romper el contrato manipulando la Urdimbre
 
 #### Tercer piso - Fosa del dolor
-
+Este piso se enfoca en el trabajo forzoso y es el piso a donde llevaron a los rebeldes de alto mando y Dioses menores, la forma de escapar este piso es creando una revuelta, de la cual es posible que varios revolucionarios no puedan escapar
 
