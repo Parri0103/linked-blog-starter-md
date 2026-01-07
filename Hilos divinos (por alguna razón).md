@@ -6,7 +6,7 @@ Una vez capturados los llevan a la prision mas grande del mundo
 
 
 
-#### Primer piso (piso del silencio)
+#### Cuarto piso - piso del silencio
 El lugar donde empiezan, solo 3 celdas, ellos están separados de a 2 en 2 celdas distintas, mientras que en la tercera celda se encuentra solo Lilith.
 
 En este piso hay una oscuridad y silencio constante y abrumador, cuando estén en las celdas pueden llegar a sentir la presencia de Lilith a través de su mirada, pero ella no se va a comunicar con ellos de forma directa hasta que le hablen.
@@ -17,3 +17,14 @@ La puerta no tiene ningún tipo de cerradura, lo único que pueden identificar e
 La única forma de salir es convencer a Lilith de que les enseñe a como manipular los hilos divinos de forma física.
 
 Los hilos son la base de nuestro mundo y los dioses no son mas que intermediarios  con una mayor afinidad a la urdimbre. Normalmente simplemente extraemos poder de la urdimbre, pero la gente con mayor afinidad, es decir los dioses, también pueden manipularla y mientras mas hilos te conecte con la urdimbre mayor es tu poder de manipulación sobre la misma.
+
+La Urdimbre es lo que conocen como el Dios Creador, aunque no sea un dios precisamente, bueno como tal ni siquiera se si tiene conciencia o no, simplemente es un ente el cual controla la existencia de este mundo.
+
+
+Hay 2 forma de convencer a Lilith para que los ayude, la primera es ponerse de acuerdo en cumplir su petición de morir para que los hilos desaparezcan y la segunda es convencerla de que pueden romper el "Contrato con el Dios creador".
+
+Surge la idea de que quizás usando la maquinaria pesada que esta en el entre piso 1.5 puedan romper el contrato manipulando la Urdimbre
+
+#### Tercer piso - Fosa del dolor
+
+
