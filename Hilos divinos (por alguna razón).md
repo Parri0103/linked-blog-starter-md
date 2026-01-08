@@ -28,3 +28,11 @@ Surge la idea de que quizás usando la maquinaria pesada que esta en el entre pi
 #### Tercer piso - Fosa del dolor
 Este piso se enfoca en el trabajo forzoso y es el piso a donde llevaron a los rebeldes de alto mando y Dioses menores, la forma de escapar este piso es creando una revuelta, de la cual es posible que varios revolucionarios no puedan escapar
 
+
+
+#### Segundo piso - Rapture
+Un piso que durante el tiempo que ellos estuvieron entrenando la prisión perdió el control casi que total sobre el mismo.
+Dejando como única zona bajo su control el camino desde el primer piso hasta el tercero.
+En este piso es donde habían dejado a los piratas que los acompañaron y algunos de los revolucionarios.
+En este piso Lena tiene el control y esta planeando atacar el camino al primer piso para llegar a la sala de control y liberar a los jugadores
+
