@@ -28,6 +28,9 @@ Surge la idea de que quizás usando la maquinaria pesada que esta en el entre pi
 #### Tercer piso - Fosa del dolor
 Este piso se enfoca en el trabajo forzoso y es el piso a donde llevaron a los rebeldes de alto mando y Dioses menores, la forma de escapar este piso es creando una revuelta, de la cual es posible que varios revolucionarios no puedan escapar
 
+los npcs tienen puestas tobilleras las cuales inhiben sus poderes y los dioses menores tienen puestas otras las cuales inhiben los hilos.
+
+Tiene que haber enemigos formidables cuidando la carcel, debido al nivel de los prisioneros
 
 
 #### Segundo piso - Rapture
