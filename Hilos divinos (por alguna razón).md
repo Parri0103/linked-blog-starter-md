@@ -32,6 +32,21 @@ los npcs tienen puestas tobilleras las cuales inhiben sus poderes y los dioses m
 
 Tiene que haber enemigos formidables cuidando la carcel, debido al nivel de los prisioneros
 
+Lilith no puede ayudarlos de forma directa, no solo por el contrato si no porque no quiere que la descubran. En el momento en el que sea descubierta el Dios de Liurnal va a poner rumbo hacía la cárcel donde ellos se encuentran.
+
+En este momento el tercer piso esta operando con menos guardias que de costumbre debido a que en el segundo piso (por culpa de Lena) se inicio una revuelta y es un completo caos.
+
+En este piso se encuentran únicamente dioses menores a los cuales se les extrae el poder de los hilos para hacer herramientas anti dioses, como las cadenas de Lilith.
+
+Lilith no siempre tuvo las cadenas, pero se las pusieron despues de que empezara a sobrecargar el hilo del dios de Liurnal, normalmente el contrato haría que esto no surguiese efecto, pero Lilith acumulo tanto y por tanto tiempo que empezo sobrepasar la barrera del contrato. por eso, en el momento en el que se termine el contrato el Dios de Liurnal va a literalmente explotar. 
+Ademas, si rompen las cadenas el Dios de Liurnal lo va a sentir, aunque el contrato siga activo.
+
+Todos los reclusos de este piso estan absurdamente debilitados debido a los experimentos que se hicieron sobre ellos.
+
+Muchos de los dioses menores de este piso fueron vendidos por Isam (Dios de Ishtal)
+En Ishtal las religiones estan permitidas y la razon principal es para mantener a este lugar en produccion.
+
+
 
 #### Segundo piso - Rapture
 Un piso que durante el tiempo que ellos estuvieron entrenando la prisión perdió el control casi que total sobre el mismo.
